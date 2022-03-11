@@ -9,4 +9,5 @@ Michenzy00/Michenzy00 is a ✨ special ✨ repository because its `README.md` (t
 You can click the Preview link to take a look at your changes.
 --->
 - 👀 So tell me how to edit temple...
-- 👀 Im looking someone to tell me how to learn editing templete - �
+- 👀 Im looking for someone to tell me how to learn editing templete - �
+5️⃣
